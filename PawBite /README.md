@@ -1,6 +1,5 @@
-# Readme ⭐
+# ![image alt](/7d0f0df0c3742894079692cb5440.gif)
 
-![image alt](/7d0f0df0c3742894079692cb5440.gif)
 
 
 ![image alt](https://github.com/PawBite/READ-ME-PLEASE/blob/77e365bc5640483f855b5524992ed0f5bf81830e/a067c6ec3af39eab2370dce3451902b8.jpg)
