@@ -1,8 +1,6 @@
 #README.md 
 
-
-![image alt](Screenshot_20260731-202317_Chrome.jpg)
-
+![image alt](Untitled9_20260731202948.png)
 
 
 ⭐  ,  Call me Apple or Voil!
