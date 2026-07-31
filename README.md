@@ -1,7 +1,7 @@
 #README.md 
 
 
-
+![image_alt](clockWORK.jpeg)
 
 
 
@@ -23,6 +23,6 @@ Dandys World . TFOAAL . PrettyBlood . Forsaken . Yandere Simulator . Helluva Bos
 ~ 《 Thats all ^^ 》 
 CHECK STRWPGE & SIGN ATABOOK.
 
-![image alt](7aaffca354f4d0fa781290d4e42f285d.jpg)
+
 
 
