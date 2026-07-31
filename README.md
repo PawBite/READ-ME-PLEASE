@@ -1,7 +1,7 @@
 #README.md 
 
 
-![image](Screenshot_20260731-202317_Chrome.jpg)
+![image alt](Screenshot_20260731-202317_Chrome.jpg)
 
 
 
