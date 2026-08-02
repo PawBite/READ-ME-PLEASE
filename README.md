@@ -1,6 +1,6 @@
 #README.md 
 
-![image alt](images.jpeg)
+![image alt](eb5d14344820245b384197b097b806eb.jpg)
 
 
 ⭐  ,  Call me Apple or Voil!
@@ -20,8 +20,7 @@ Dandys World . TFOAAL . PrettyBlood . Forsaken . Yandere Simulator . Helluva Bos
 
 ~ 《 Thats all ^^ 》 
 CHECK STRWPGE & SIGN ATABOOK.
-
-![image alt](Untitled9_20260731202948.png)
+currently in Bad things and Alnst..
 
 
 
